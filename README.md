@@ -1,0 +1,1 @@
+# amanoshun.github.io
